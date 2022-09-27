@@ -2,7 +2,6 @@
 <html lang="en" dir="ltr">
   <head>
     <meta charset="utf-8">
-    <title>เว็บสล็อตน้องใหม่</title>
   </head>
   <body>
     <h1 Style="color:red;">เกมส์สล็อตใหม่ PG เว็บใหญ่ลิขสิทธิ์แท้</h1>
